@@ -67,7 +67,8 @@ There are a number of organizations that operate more like businesses, but can s
 
 Being in a city is as much a list of things to do and places to go to as it is a mindset and way of life. Here are some articles that help you get into a SF State of Mind.
 
-- [How to enjoy SF](http://zhayitong.com/2023/06/17/sf.html) by [Yitong Zhang](https://twitter.com/zhayitong)
+- [How to enjoy SF](https://zhayitong.com/2023/06/17/sf.html) by [Yitong Zhang](https://twitter.com/zhayitong)
+
 
 ### Resources
 
